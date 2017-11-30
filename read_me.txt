@@ -1,0 +1,1 @@
+Treba spojiti sa originalom radi strima.
